@@ -1,4 +1,4 @@
 
 
-![App Screenshot](https://i.ibb.co/BZS0yqp/Aimaless-Wunderings-1.png)
+![App Screenshot](https://i.ibb.co/T4tF6sH/Aimaless-Wunderings-2.png)
 
